@@ -1,4 +1,6 @@
 
+Draft video url: https://youtu.be/wCpdTHjfJlQ
+
 ## What if governments paid people to and businesses to take action on climate change?
 We think the Global Carbon Reward is a game changer. It's a new financial mechanism that doesn't involve taxes. A positive market incentive for protecting the climate.
 
